@@ -1,1 +1,4 @@
-# sandy
+Hey iam sandy an enthusiastic learner and an electrical engineer.Love to code,edit videos,do animatons,make games,3-D graphics,DIY projects and reading stuffs.Active stock market participant like to learn about financial engineering and many more my areas of interest include Electric vehicles,renewable energy systems,Battery management systems,computer vision,machine learningand almost all the fields that provoke the inner me
+I have a youtube channel where i share my current project status and teaching tutorials do check it out here :https://www.youtube.com/channel/UC7lYDMqEqt4z3JFMSl38aQw?view_as=subscriber
+Also connect me on linkedin :https://www.linkedin.com/in/sandyagu-r-425a43192/
+if you have any queries or want to do any collabs just mail me here sandyagur@gmail.com lets do terrific things together
